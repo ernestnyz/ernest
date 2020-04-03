@@ -1,0 +1,2 @@
+# ernest
+just a journey
